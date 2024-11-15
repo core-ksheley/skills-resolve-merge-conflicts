@@ -1,3 +1,2 @@
-# References
+This is Kristi's references and they are superior to any other references out there.
 
-* octocat 1 😈
